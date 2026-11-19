@@ -12,7 +12,7 @@
 
 **文明的下一章，由你开创**
 
-Blank
+https://github.com/user-attachments/assets/bd3de93a-5ce8-458f-9f63-a69d835f668f
 
 ## 游戏目标与玩法
 
